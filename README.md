@@ -1,1 +1,1 @@
-# Exercicio
+Meu nome é Amanda Santos Nascimento, e meu prato favorito é sushi.
